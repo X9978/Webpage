@@ -1,2 +1,2 @@
 # Webpage
-<strong> hello </strong>
+This webpage is dedicated to promoting and selling a variety of breast cancer awareness merchandise. Each item has been  designed to combine comfort, style, and purpose, allowing individuals to show their support or share their journey in a meaningful way. Every dollar of profit generated from these sales goes directly toward funding vital breast cancer research and ongoing studies. Our mission is to offer fashionable, empowering clothing and accessories that not only raise awareness but also represent the strength of those affected by breast cancer.
